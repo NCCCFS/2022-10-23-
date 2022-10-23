@@ -1,1 +1,35 @@
+# 2022年10月23号主日信息
+# 主题：同受苦难，同得安慰
+# 经文：哥林多后书1：1-11
+# 讲员：赵牧师
+<audio controls src="./同受苦难，同得安慰.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/197399560-33bf7167-9bfd-4d08-a419-c0584e76e811.png)
+![image](https://user-images.githubusercontent.com/91267933/197399568-8b5d017b-b13c-4450-b947-c4158fae0417.png)
+![image](https://user-images.githubusercontent.com/91267933/197399571-51b7cf80-51f2-4a9a-9841-f1e37a40a465.png)
+![image](https://user-images.githubusercontent.com/91267933/197399577-84619e4b-1484-4b0c-9dfb-885843b22693.png)
+![image](https://user-images.githubusercontent.com/91267933/197399589-f9771dd5-0c30-444d-8fd2-7251e480395b.png)
+![image](https://user-images.githubusercontent.com/91267933/197399595-d1a9fa23-436d-482c-b6e9-42b4bb55842d.png)
+![image](https://user-images.githubusercontent.com/91267933/197399600-2fababcf-c638-44f7-9f1d-21706f0f4863.png)
+![image](https://user-images.githubusercontent.com/91267933/197399605-f4a0810e-7c61-4c9f-b139-87061a2f59e7.png)
+![image](https://user-images.githubusercontent.com/91267933/197399609-eb67cab6-4142-4ca7-9100-8c64cc39c002.png)
+![image](https://user-images.githubusercontent.com/91267933/197399616-7a242e4f-e006-47a5-9308-164e4ad1a6d1.png)
+![image](https://user-images.githubusercontent.com/91267933/197399622-8b1aa983-1125-45ed-9d91-4a1187cab3a0.png)
+![image](https://user-images.githubusercontent.com/91267933/197399625-0e65eca6-0442-4498-b863-f90a699b0ba3.png)
+![image](https://user-images.githubusercontent.com/91267933/197399636-658162a1-2595-4cbd-84be-9eb9540ab00f.png)
+![image](https://user-images.githubusercontent.com/91267933/197399640-bf35f1c2-8815-4a9a-9e1a-61de37279a41.png)
+![image](https://user-images.githubusercontent.com/91267933/197399642-f1b734db-1fc5-4fd9-94af-41a5fa8c6ef6.png)
+![image](https://user-images.githubusercontent.com/91267933/197399650-1ba23858-7ec2-4b9c-8381-4dc8e8c4d9d6.png)
+![image](https://user-images.githubusercontent.com/91267933/197399654-4355dbeb-916a-4335-bdf3-191fd7aa08cd.png)
+![image](https://user-images.githubusercontent.com/91267933/197399660-a35d202f-a81b-46fc-bcf8-c38eec52aba6.png)
+![image](https://user-images.githubusercontent.com/91267933/197399671-1f117e5a-7907-47f6-b5b5-543fe4265011.png)
+![image](https://user-images.githubusercontent.com/91267933/197399674-ea9f5fee-48e8-4e02-9086-47393db35b2a.png)
+![image](https://user-images.githubusercontent.com/91267933/197399681-3aadd16b-7705-44cd-9bb3-3f4312264225.png)
+![image](https://user-images.githubusercontent.com/91267933/197399684-3983699f-1bbb-4fe3-8f2a-bdb7f1c12809.png)
+![image](https://user-images.githubusercontent.com/91267933/197399686-7aa62a30-c4b2-451e-8ca2-9e9e102bb805.png)
+![image](https://user-images.githubusercontent.com/91267933/197399692-75850a0f-c1cf-4982-aa16-214f472f0817.png)
+![image](https://user-images.githubusercontent.com/91267933/197399713-e461106c-f943-416f-9285-bc7f6a1f52a8.png)
+![image](https://user-images.githubusercontent.com/91267933/197399725-35f2daa3-be04-42ad-b4ec-753a72d1d4b0.png)
+![image](https://user-images.githubusercontent.com/91267933/197399735-8cf06fa5-7927-472f-9eab-d4bb9e5dfb92.png)
+![image](https://user-images.githubusercontent.com/91267933/197399741-0a585a96-8095-4bdb-9917-00659e0cdea3.png)
+![image](https://user-images.githubusercontent.com/91267933/197399754-dca40abe-1a97-4081-9a7c-2154f1d7f71f.png)
 
